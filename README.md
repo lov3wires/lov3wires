@@ -12,4 +12,4 @@
 <img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/2da2fd5c-ab76-482b-93e0-eff3165e75c6" />
 <img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/d6d634d5-767d-4295-9ed5-6fbf956e8765" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?its hard to live alone.=First+but when i met him,+of+text;my life changed.+line+of+text
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=life+is+hard+wihtout;the+love+of+my+lofe
