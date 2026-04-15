@@ -4,3 +4,5 @@
 
 # hello my lovelyz! ♡
 • thiz iz a wip becauze i am very unmotivated and lazy and tired (^_^;)
+
+• go to my frist link to read a short information about me !
