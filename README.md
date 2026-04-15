@@ -6,7 +6,7 @@
 # hello my lovelyz! ♡
    • thiz iz a wip becauze i am very unmotivated and lazy and tired (^_^;)
 
-   • go to my frist link to read a short information about me !
+   • go to my frizt link to read a zhort information about me !
    
 
 <img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/2da2fd5c-ab76-482b-93e0-eff3165e75c6" />
