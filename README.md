@@ -1,5 +1,6 @@
 
 
+
 ![Image](https://github.com/user-attachments/assets/0624b58d-ce24-45dd-93aa-82d82652b3c6)
 
 # hello my lovelyz! ♡
@@ -10,3 +11,5 @@
    <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/fffebf62-c4be-4f1c-a7f0-0986ba3ed8b0" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f001794d-efd6-4959-82c5-f4747d2dd648" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/ac329867-a7db-4c13-9d74-683ddec40f0e" />
+<img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/2da2fd5c-ab76-482b-93e0-eff3165e75c6" />
+<img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/d6d634d5-767d-4295-9ed5-6fbf956e8765" />
