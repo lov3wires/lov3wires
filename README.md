@@ -26,7 +26,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 
 ⿻     **NATIONALITY**  ~~  :P  ~~  :  Asian / European 
 
-⿻     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at frist but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , tagalog and spanish ! My birthday is on August 1st ^_^ ,, attachment clingy issues is a hazard so please tell me if you dont like it.
+⿻     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at frist but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , tagalog and spanish ! My birthday is on August 1st ^_^ ,, attachment clingy issues is a hazard, *I WILL* call you pet names at times like dear, dearie, love etc so please tell me if you dont like it.
 
 ⿻     **FANDOMS**  ~~  <333  ~~  :  **team fortress  2** , no im not a human , nocturnals , deltarune , guts and blackpowder , **emesis blue** , **dont join team red** , dispatch , hannibal , epic the musical , hamilton , **freak fortress 2** , stanley parable ,  **serverblight** , etc .
 
@@ -35,8 +35,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 # ♫   ⁀   **BOUNDARIES**  ~~  !!  ~~
 ⿻     **DMS**  ~~  ?  ~~ : open!!
 ⿻     **FRQ**  ~~  ?  ~~  : yes of course!
-⿻     **OTHER**  ~~  ?  ~~  :  13- n 18+ interact with CAUTION . (I dont have basic DNI . Just be cool and kind , I'll fw you)
--# UNLESS YOURE WEIRD!! . discord is : puppyyuko
+⿻     **OTHER**  ~~  ?  ~~  :  13- n 18+ interact with CAUTION . (I dont have basic DNI . Just be cool and kind , I'll fw you) UNLESS YOURE WEIRD!! . discord is : puppyyuko
 
 **“**   *i am fully charged*  ! **”**
 
