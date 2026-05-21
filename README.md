@@ -26,7 +26,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 
 ⿻     **NATIONALITY**  ~~  :P  ~~  :  Asian / European 
 
-⿻     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at frist but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , tagalog and spanish ! My birthday is on August 1st ^_^ ,, will only tell age if very close and comfortable. 
+⿻     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at frist but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , tagalog and spanish ! My birthday is on August 1st ^_^ ,, attachment clingy issues is a hazard so please tell me if you dont like it.
 
 ⿻     **FANDOMS**  ~~  <333  ~~  :  **team fortress  2** , no im not a human , nocturnals , deltarune , guts and blackpowder , **emesis blue** , **dont join team red** , dispatch , hannibal , epic the musical , hamilton , **freak fortress 2** , stanley parable ,  **serverblight** , etc .
 
@@ -42,8 +42,10 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
   
-    ⌣  *end* !
-# ——    🐾    ——
+ 
+  ⌣  *end* !
+    
+——    🐾    ——
    <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/dd3d25df-cccc-43da-bf81-6b90cc4c8e6c" />
    
    <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c1f117a9-44fd-46c7-9467-097ea7ea403f" />
