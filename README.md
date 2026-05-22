@@ -47,7 +47,7 @@ interact with CAUTION . (I dont have basic DNI . Just be cool and kind , I'll fw
  
   ⌣  *end* !
     
-——    🐾    ——
+——    🦴    ——
    <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/dd3d25df-cccc-43da-bf81-6b90cc4c8e6c" />
    
    <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c1f117a9-44fd-46c7-9467-097ea7ea403f" />
