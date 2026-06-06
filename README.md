@@ -28,7 +28,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 
 •     **NATIONALITY**  ~~  :P  ~~  :  Asian / European 
 
-•     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at frist but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , russian ! My birthday is on August 1st ^_^ ,, attachment clingy issues so as jealousy issues is a hazard, *I WILL* call you pet names at times like dear, dearie, love etc so please tell me if you dont like it., Im such a chud guys I swear im not weird there's just something wrong with me trust!!.!
+•     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at frist but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , russian ! My birthday is on August 1st ^_^ ,, attachment clingy issues so as jealousy issues is a hazard, *I WILL* call you pet names at times like dear, dearie, love etc so please tell me if you dont like it., Im such a chud guys
 
 •     **FANDOMS**  ~~  <333  ~~  :  **team fortress  2** , no im not a human , nocturnals , deltarune , guts and blackpowder , **emesis blue** , **dont join team red** , dispatch , hannibal , epic the musical , hamilton , **freak fortress 2** , stanley parable ,  **serverblight** , etc .
 
@@ -39,6 +39,21 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 )     **FRQ**  ~~  ?  ~~  : yes of course!
   )     **OTHER**  ~~  ?  ~~  :  13- n 18+ 
 interact with CAUTION . (I dont have basic DNI . Just be cool and kind , I'll fw you) UNLESS YOURE WEIRD!! . discord is : puppyyuko
+
+I love when people give me any nickname, I die for it. im very affectionate and more affectionate of you give it back. im very lovely dovely probably will genuinely consider everything affectionate and love. sometimes touch starved n shit but honestly, its obsession. no — nothing is wrong with me, yet, I've drawn myself for love and devotion. love is very special to m. it hurts and affects my health.
+
+FOR PT : 
+
+yes you can spam nuzzle me.
+yes you can spam kiss me.
+yes you can cuddle me.
+yes you can hide behind me.
+yes you can interact with me.
+yes you can match skins / outfits with me.
+
+all of this is affection and platonic to me. ♡
+
+
 
 **“**   *i am fully charged*  ! **”**
 
