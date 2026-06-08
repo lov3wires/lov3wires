@@ -24,7 +24,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 
 •     **PRNS**   ~~  !!  ~~  :  any / all pronouns !
 
-•     **SXUALITY**  ~~  !?  ~~  : transmasc <ftm> , pansexual , demisexual/romantic , genderfluid , fictionkin , xenogender , polygamy .
+•     **SXUALITY**  ~~  !?  ~~  : transmasc <ftm> , pansexual , demisexual/romantic , genderfluid , fictionkin , xenogender , polygamy ,gay mayb.. .
 
 •     **NATIONALITY**  ~~  :P  ~~  :  Asian / European 
 
