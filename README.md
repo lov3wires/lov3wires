@@ -38,9 +38,9 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 )     **DMS**  ~~  ?  ~~ : open!!        
 )     **FRQ**  ~~  ?  ~~  : yes of course!
   )     **OTHER**  ~~  ?  ~~  :  13- n 18+ 
-interact with CAUTION . (I dont have basic DNI . Just be cool and kind , I'll fw you) UNLESS YOURE WEIRD!! . discord is : puppyyuko
+interact with CAUTION . (except for oomfs. I dont have basic DNI . Just be cool and kind , I'll fw you) . discord is : puppyyuko
 
-I love when people give me any nickname, I die for it. im very affectionate and more affectionate of you give it back. im very lovely dovely probably will genuinely consider everything affectionate and love. sometimes touch starved n shit but honestly, its obsession. no — nothing is wrong with me, yet, I've drawn myself for love and devotion. love is very special to m. it hurts and affects my health.
+I love when people give me any nickname, I die for it. im very affectionate and more affectionate of you give it back. im very lovely dovely probably will genuinely consider everything affectionate and love. sometimes touch starved n shit but honestly, its obsession. no — nothing is wrong with me, yet, I've drawn myself for love and devotion. love is very special to me. it hurts and affects my health.
 
 FOR PT : 
 
