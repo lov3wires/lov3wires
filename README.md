@@ -17,41 +17,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
     
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
-**“**  *i zont think it is anyzthing to worry about*  . .  **”**
-
-# ♫   ⁀   **INFO**  ~~  abt me  ~~  vv
-•     **NAME**'  ~~  s  ~~  :  Yuko , medic ,  herbert , ludwig , fritz .
-
-•     **PRNS**   ~~  !!  ~~  :  any / all pronouns !
-
-•     **SXUALITY**  ~~  !?  ~~  : transmasc <ftm> , pansexual , demisexual/romantic , genderfluid , fictionkin , xenogender , polyamory ,gay mayb.. .
-
-•     **NATIONALITY**  ~~  :P  ~~  :  Asian / European 
-
-•     **BYI**  ~~  !!!  ~~  :  I may be a sensitive person at times but ill deal over it . I **LOVE** making new friends!! . **INTROVERT** at first but will open up to you easily if comfortable . May be semi/non verbal at times . . **I AM** medic from tf2 . I am bilingual  — English , dutch , russian ! My birthday is on August 1st ^_^ ,, attachment clingy issues so as jealousy issues is a hazard, *I WILL* call you pet names at times like dear, dearie, love etc so please tell me if you dont like it., Im such a chud guys
-
-•     **FANDOMS**  ~~  <333  ~~  :  **team fortress  2** , no im not a human , nocturnals , deltarune , guts and blackpowder , **emesis blue** , **dont join team red** , dispatch , hannibal , epic the musical , hamilton , **freak fortress 2** , stanley parable ,  **serverblight** , etc .
-
-•     **MUSIC**  ~~  ^_^  ~~  :  rock , hip—hop , lofi , any music in general !
-
-# ♫   ⁀   **BOUNDARIES**  ~~  !!  ~~
-)     **DMS**  ~~  ?  ~~ : open!!        
-)     **FRQ**  ~~  ?  ~~  : yes of course!
-  )     **OTHER**  ~~  ?  ~~  :  13- n 18+ 
-interact with CAUTION . (except for oomfs. I dont have basic DNI . Just be cool and kind , I'll fw you) . discord is : puppyyuko
-
-I love when people give me any nickname, I die for it. im very affectionate and more affectionate of you give it back. im very lovely dovely probably will genuinely consider everything affectionate and love. sometimes touch starved n shit but honestly, its obsession. no — nothing is wrong with me, yet, I've drawn myself for love and devotion. love is very special to me. it hurts and affects my health.
-
-FOR PT : 
-
-yes you can spam nuzzle me.
-yes you can spam kiss me.
-yes you can cuddle me.
-yes you can hide behind me.
-yes you can interact with me.
-yes you can match skins / outfits with me.
-
-all of this is affection and platonic to me. ♡
+genuinely going to remake this later after a hundred years .. bare with me pls
 
 
 
@@ -60,7 +26,7 @@ all of this is affection and platonic to me. ♡
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
   
  
-  ⌣  *end* !
+  ⌣  ** 
     
 ——    🦴    ——
    <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/dd3d25df-cccc-43da-bf81-6b90cc4c8e6c" />
