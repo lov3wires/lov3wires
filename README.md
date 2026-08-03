@@ -13,7 +13,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 <img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/ac8e3a1c-232b-484f-b986-db839ab8dbff" />
 
 ——   🕊    —
-    ⌣    **yuko / ludwig**'s int*ro* !!
+    ⌣    **INFORMATION ABOUT** YOUR *DOC*TOR' !!
     
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
