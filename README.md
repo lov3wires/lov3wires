@@ -9,7 +9,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=1900&color=F799A7&width=435&lines=He's+my+man%2C;We're+hand+in+hand%2C;To+hell+and+back%2C;And+I+love+him+like+nobody+else+can.;He's+my+man%2C;I've+been+damned%2C;No%2C+nobody+has+to+understand.+;Me+and+my+man+.+%E2%99%A1)](https://git.io/typing-svg)
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/ca04acc3-e47c-4568-9e6c-1bc36eb77a93" />
-# hello my lovelyz! ♡ 
+# greetings, my lovely patients . ♡ 
 <img width="300" height="40" alt="Image" src="https://github.com/user-attachments/assets/ac8e3a1c-232b-484f-b986-db839ab8dbff" />
 
 ——   🕊    —
