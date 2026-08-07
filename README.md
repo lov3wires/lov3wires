@@ -20,7 +20,7 @@ src="https://github.com/user-attachments/assets/1e6330d7-6a38-4355-b2ad-3fc4ecb0
 work in progress  , excuse your doctor for being a lazy shit .
 
 
-THE medic confirmed by [pt-fashion](https://github.com)
+THE medic confirmed by <a href="https://github.com" target="_blank">pt-fashion</a>
 
 
 **“**   *i am fully charged*  ! **”**
