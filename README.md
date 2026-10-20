@@ -14,7 +14,7 @@ $\color{#E7C6B5}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSEL
 <details>
 <summary> </summary>
 
-$\color{#E7C6B5}{\text{greetings! i go by yuko , ludwig OR dorian! any name or nickname is fine since i do prefer them ^ _ ^}}$
+$\color{#E7C6B5}{\text{greetings! i go by yuko , ludwig OR dorian! any name or nickname is fine since i do prefer them}}$
 
 </details>
 
