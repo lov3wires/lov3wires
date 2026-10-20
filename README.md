@@ -11,4 +11,11 @@ $\color{#E7C6B5}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSEL
 
 <img width="736" height="569" alt="Image" src="https://github.com/user-attachments/assets/9d029e10-f4e6-44d6-8b01-40d10341b521" />
 
+<details>
+<summary> </summary>
+
+$\color{#E7C6B5}{\text{greetings! i go by yuko , ludwig OR dorian! any name or nickname is fine since i do prefer them ^ _ ^}}$
+
+</details>
+
 best viewed in pc
