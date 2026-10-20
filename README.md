@@ -16,7 +16,8 @@ $\color{#E7C6B5}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSEL
 
 $\color{#E7C6B5}{\text{greetings! i go by yuko , ludwig OR dorian! any name or nickname is fine since i do prefer them}}$
 
-$\color{#E7C6B5}{\text{I loovvee making friends so dont be shy to talk and interact with me even if I have dni in my name, I will always be open or not since I could be really burnt out or buzzed off}}$
+$\color{#E7C6B5}{\text{I loovvee making friends so dont be shy to talk and interact with me even if I have dni in my name, I will always be open or
+not since I could be really burnt out or buzzed off}}$
 
 </details>
 
