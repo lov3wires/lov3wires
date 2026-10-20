@@ -1,7 +1,7 @@
 <details>
 <summary> </summary>
 
-$\color{#8B0000}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSELF.}}$
+$\color{#E7C6B5}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSELF.}}$
 
 </details>
 
