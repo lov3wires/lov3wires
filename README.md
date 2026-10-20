@@ -1,7 +1,7 @@
 <details>
 <summary> </summary>
 
-lowkey torn between tf2 and deadlock bro..... decisions decisions 
+$\color{#8B0000}{\text{I AM SO TORN BETWEEN TF2 AND DEADLOCK BRO STRANGLES MYSELF.}}$
 
 </details>
 
